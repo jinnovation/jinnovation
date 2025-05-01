@@ -1,5 +1,8 @@
 ![image](https://media1.tenor.com/images/19212f08e91f0231f7dba150679623be/tenor.gif)
 
+> [!NOTE]
+> *Profile pic credit: [のべ子](https://www.pixiv.net/users/1453344)*
+
 
 <!--
 **jinnovation/jinnovation** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
